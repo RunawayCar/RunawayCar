@@ -15,7 +15,7 @@
 ᴄʜᴇᴄᴋ ᴏᴜᴛ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴀᴛᴀʙᴏᴏᴋ!!
 
 
-[strwpg](https://benny-jcc.straw.page/)             [ata](https://riskyrun.atabook.org/)
+[strwpg](https://benny-jcc.straw.page/)             [ata](https://riskyrun.atabook.org/)     [strwpg2](https://eddie-jcc.straw.page/)
 
 (ᴛʜɪꜱ ɪꜱ ᴍʏ ʀᴇʙʀᴀɴᴅɪɴɢ)
 
